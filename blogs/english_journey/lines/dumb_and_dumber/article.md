@@ -1,0 +1,25 @@
+# Dumb and Dumber
+
+- Could you do me a favor and watch my stuff here while I go break a dollar?
+- I got robbed by a sweet old lady on a motorized cart.
+- I didn't even see it coming. (我根本没想到会这样)
+- I've had it with it. (我受够了)
+- I'm sick and tired of being a nobody.
+- You'd better not be fooling. (你最好别骗我)
+- We're on a very tight budget. (我们很缺钱)
+- Who's the dead man that hit me with the salt shaker?
+- I crossed my mind. (我突然想到）
+- You really wimped out man. (你真的很弱诶)
+- We would like to buy you guys a round of beers, just to bury the hatchet. 
+- Sea bass and the fellas offered to pick up out check. (Sea bass 和他兄弟要给我们埋单)
+- \- Pull over. \- No. It's a cardigan, but thanks for noticing. (cardigan: 开襟衫)
+- How could they not have gotten the ransom? (ransom: 赎金)
+- I don't think we should do anything out of the ordinary.
+- It's imperative that we carry on as usual.
+- We can't let on that anything's wrong. (let on: 透露)
+- get off the phone (挂断电话)
+- We usually don't pick up hitchikers, but I'm going to go with my instinct on this one. (hitchiker: 搭便车的人；go with my instinct on 照直觉做)
+- hit the road 上路
+- He's such a klutz 他就是个笨手笨脚的人
+- Any sign of them yet? 看到他们了吗
+- No, sir, but we're expecting them shortly. 没有，但他们很快就会来了
